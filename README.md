@@ -1,0 +1,1 @@
+# papir_kamen_makaze
